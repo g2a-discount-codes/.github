@@ -1,4 +1,4 @@
- # G2A Discount Code 2025: Up to 50% OFF TODAY
+ # Secret G2A Discount Tricks and Hidden Coupons Most Gamers Miss
 
 
 

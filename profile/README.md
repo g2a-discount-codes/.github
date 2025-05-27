@@ -18,15 +18,7 @@ If you have come only for **G2A discount codes**, then you can follow the link g
 
 
 
-
-
-[![Alt text](https://github.com/user-attachments/assets/99158273-bd97-496e-a1fd-716cc3a96fd3)](https://www.coubn.com/g2a-discount-codes/)
-
-
-
-
-
-
+(https://www.coubn.com/g2a-discount-codes/)
 
 
 

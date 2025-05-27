@@ -18,7 +18,7 @@ If you have come only for **G2A discount codes**, then you can follow the link g
 
 
 
-(https://www.coubn.com/g2a-discount-codes/)
+[🎁 Use This Link To Get 20 to 50% OFF >>>](https://www.coubn.com/g2a-discount-codes/)  
 
 
 
